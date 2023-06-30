@@ -1,4 +1,4 @@
-<img align="center" width="1000" src="https://wallpaperaccess.com/full/4910984.gif">
+<img align="center" width="1200" height="400" src="https://wallpaperaccess.com/full/4910984.gif">
 
 <hr>
 
